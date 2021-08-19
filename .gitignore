@@ -130,3 +130,6 @@ dmypy.json
 
 # Windows
 desktop.ini
+
+# MacOS
+.DS_Store
