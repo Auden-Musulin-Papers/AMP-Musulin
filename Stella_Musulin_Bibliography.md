@@ -28,6 +28,8 @@ Musulin, Stella. 1995 / 2018. Auden in Kirchstetten. In *Thanksgiving für ein H
 
 Auden, W. H. 1972 / 1995. Letter to the Austrian Tax Authorities. In *'In Solitude, for Company': W. H. Auden After 1940*, Auden Studies 3, ed. Katherine Bucknell and Nicholas Jenkins, 231-233. Oxford: Clarendon Press. [Translation back into English from Hilde Spiel's German]
 
+Auden, W. H. 1970 / 2018. Die Neulengbacher Rede, Ger. transl. Stella Musulin. In *Thanksgiving für ein Habitat*, ed. Helmut Neundlinger, 125-134. St. Pölten: Literaturedition Niederösterreich. [text first appeared in the first issue of the literary magazine *Podium* in April 1971]
+
 Birkle, Albert, and Rieble, Egon. 1970. *Glasbilder und kritische Zeichnungen. Stained Glas Windows and Social Cartoons. Vitraux et dessins*, Engl. transl. Stella Musulin. Heidelberg: Kerle. 
 
 Cowles, Virginia. 1954. *Winston Churchill: Der Mann und seine Zeit* [Winston Churchill: The Era and the Man], German transl. Stella Musulin. Munich, Vienna, Basel: Desch. 
@@ -43,6 +45,8 @@ Lessing, Erich. 1971. *Jesus: History and Culture of the New Testament. A Pictor
 ## Literature about Musulin
 
 Firchow, Peter Edgerly. 2002. Appendix: Auden in Austria: Two Interviews. In *W. H. Auden: Contexts for Poetry*, 231-237. Newark: University of Delaware Press.
+
+Frühwirth, Timo. 2018. "After all, he's your neighbour now": W. H. Audens Briefwechsel mit Stella Musulin. In *Thanksgiving für ein Habitat*, ed. Helmut Neundlinger, 153-177. St. Pölten: Literaturedition Niederösterreich.
 
 Grigg, John. 1975. Book Review *Vienna in the Age of Metternich*. The Spectator 25 October 1975: 539.
 
