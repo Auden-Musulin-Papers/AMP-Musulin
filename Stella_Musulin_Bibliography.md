@@ -1,4 +1,48 @@
+# Bibliography Stella Musulin
 
 
-## Articles
+## Monographs
+Musulin, Stella. 1971. *Austria: People and Landscape*. With a Foreword by W. H. Auden. London: Faber and Faber.
+
+Musulin, Stella. 1971. *Austria and the Austrians*. New York: Praeger Publishers. [American Edition]
+
+Musulin, Stella. 1975. *Vienna in the Age of Metternich: From Napoleon to Revolution 1805-1848*. London: Faber and Faber. 
+
+
+## Articles / Book Chapters
+Musulin, Stella. 1968. The New Climate of Austrian Politics. *The World Today* 24 (11): 483-490. 
+
 Musulin, Stella. 1977. Die zwei Welten des W. H. Auden: Auf den Spuren des englischen Poeten in Kirchstetten. *morgen*: 6-12.
+
+Musulin, Stella. 1978. Vienna in the Year of Revolutions, 1848. *History Today* 28 (7): 429. 
+
+Musulin, Stella. 1995. Auden in Kirchstetten. In *'In Solitude, for Company': W. H. Auden After 1940*, Auden Studies 3, ed. Katherine Bucknell and Nicholas Jenkins, 207-223. Oxford: Clarendon Press.
+
+Musulin, Stella. 1995 / 2018. Auden in Kirchstetten. In *Thanksgiving für ein Habitat*, ed. Helmut Neundlinger, Ger. transl. Elisabeth Girschele, 135-152. St. Pölten: Literaturedition Niederösterreich.
+
+
+## Journalism (Newspaper Articles, Reviews)
+
+
+## Translations
+
+Auden, W. H. 1972 / 1995. Letter to the Austrian Tax Authorities. In *'In Solitude, for Company': W. H. Auden After 1940*, Auden Studies 3, ed. Katherine Bucknell and Nicholas Jenkins, 231-233. Oxford: Clarendon Press. [Translation back into English from Hilde Spiel's German]
+
+Birkle, Albert, and Rieble, Egon. 1970. *Glasbilder und kritische Zeichnungen. Stained Glas Windows and Social Cartoons. Vitraux et dessins*, Engl. transl. Stella Musulin. Heidelberg: Kerle. 
+
+Cowles, Virginia. 1954. *Winston Churchill: Der Mann und seine Zeit* [Winston Churchill: The Era and the Man], German transl. Stella Musulin. Munich, Vienna, Basel: Desch. 
+
+Leitich, Ann Tizia. 1956. *The Spanish Riding School in Vienna* [Die Spanische Reitschule in Wien], Engl. transl. Stella Musulin. Munich: Nymphenburger Verlagshandlung.  
+
+Lessing, Erich. 1971. *Jesus: History and Culture of the New Testament. A Pictorial Narration* [Der Mann aus Galiläa], Engl. transl. Stella Musulin, Robert mahoney, Angela Zerbe. New York: Herder and Herder. 
+
+
+## Archival Material 
+
+
+## Literature about Musulin
+Grigg, John. 1975. Book Review *Vienna in the Age of Metternich*. The Spectator 25 October 1975: 539. 
+
+Rath, R. John. 1974. Book Review *Austria and the Austrians*. *Slavic Review* 33 (3): 591. 
+
+Steers, H. G. 1972. Book Review *Austria: People and Landscape*. *The Geographical Journal* 138 (2): 236-237. 
