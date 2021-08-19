@@ -34,14 +34,17 @@ Cowles, Virginia. 1954. *Winston Churchill: Der Mann und seine Zeit* [Winston Ch
 
 Leitich, Ann Tizia. 1956. *The Spanish Riding School in Vienna* [Die Spanische Reitschule in Wien], Engl. transl. Stella Musulin. Munich: Nymphenburger Verlagshandlung.  
 
-Lessing, Erich. 1971. *Jesus: History and Culture of the New Testament. A Pictorial Narration* [Der Mann aus Galiläa], Engl. transl. Stella Musulin, Robert mahoney, Angela Zerbe. New York: Herder and Herder. 
+Lessing, Erich. 1971. *Jesus: History and Culture of the New Testament. A Pictorial Narration* [Der Mann aus Galiläa], Engl. transl. Stella Musulin, Robert Mahoney, Angela Zerbe. New York: Herder and Herder.
 
 
 ## Archival Material 
 
 
 ## Literature about Musulin
-Grigg, John. 1975. Book Review *Vienna in the Age of Metternich*. The Spectator 25 October 1975: 539. 
+
+Firchow, Peter Edgerly. 2002. Appendix: Auden in Austria: Two Interviews. In *W. H. Auden: Contexts for Poetry*, 231-237. Newark: University of Delaware Press.
+
+Grigg, John. 1975. Book Review *Vienna in the Age of Metternich*. The Spectator 25 October 1975: 539.
 
 Rath, R. John. 1974. Book Review *Austria and the Austrians*. *Slavic Review* 33 (3): 591. 
 
