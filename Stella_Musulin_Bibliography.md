@@ -12,7 +12,7 @@ Musulin, Stella. 1975. *Vienna in the Age of Metternich: From Napoleon to Revolu
 ## Articles / Book Chapters
 Musulin, Stella. 1968. The New Climate of Austrian Politics. *The World Today* 24 (11): 483-490. 
 
-Musulin, Stella. 1977. Die zwei Welten des W. H. Auden: Auf den Spuren des englischen Poeten in Kirchstetten. *morgen*: 6-12.
+Musulin, Stella. 1977. Die zwei Welten des W. H. Auden: Auf den Spuren des englischen Poeten in Kirchstetten. *morgen* 1: 6-12.
 
 Musulin, Stella. 1978. Vienna in the Year of Revolutions, 1848. *History Today* 28 (7): 429. 
 
