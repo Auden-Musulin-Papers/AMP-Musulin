@@ -26,6 +26,8 @@ Musulin, Stella. 1995 / 2018. Auden in Kirchstetten. In *Thanksgiving für ein H
 
 
 ## Journalism (Newspaper Articles, Reviews)
+Musulin, Stella. 1978. Von Schlössern ins britische Paßamt. *Die Presse* 11/12 March 1978. 20-21. 
+
 Musulin, Stella. 1979. Der Weg zum Stadtpark. *Die Presse* ? 1979 [Spectrum]. n. p. 
 
 Musulin, Stella. 1985. Ein Fest für Henry Tudor. *Die Presse* ? August 1985 [Spectrum]. n. p. 
@@ -74,6 +76,14 @@ Köcher, Helga. 1985. Letter to Stella Musulin, 18 July 1985, Opergasse 20A/7, V
 Musulin, Stella. n. d. The Years in Austria [photocopy of typescript with handwritten annotations, 44 sheets; long version of text]. Vorlass / Collection Helga Köcher, Landessammlungen Niederösterreich. 
 
 Musulin, Stella. n. d. Arbeitstitel: Letzten Endes (Ein Dorf an der Atlantikküste von Wales) [photocopy of typescript, 66 sheets; text about SM's native village in Wales]. Vorlass / Collection Helga Köcher, Landessammlungen Niederösterreich. 
+
+Musulin, Stella. n. d. Thumersbach [account of the Musulins' post-war years in Salzburg; photocopy of typescript with handwritten annotations, 13 sheets]. Vorlass / Collection Helga Köcher, Landessammlungen Niederösterreich.
+
+Musulin, Stella. n. d. Der Brandhof [account of Musulin's arrival in Austria in the 1930s; photocopy of typescript with handwritten annotations, 14 sheets]. Vorlass / Collection Helga Köcher, Landessammlungen Niederösterreich.
+
+Musulin, Stella. n. d. Die Sache mit Hua-hua [autobiographical text about rural life in Wales; photocopy of typescript with handwritten annotations, 7 sheets]. Vorlass / Collection Helga Köcher, Landessammlungen Niederösterreich.
+
+Musulin, Stella. n. d. Hier fließt so manches zusammen [autobiographical text about Musulin's native village in Wales; photocopy of typescript with handwritten annotations, 8 leaves]. Vorlass / Collection Helga Köcher, Landessammlungen Niederösterreich.
 
 Musulin, Stella. n. d. Station Neuro-A: Eine Szenenfolge für Fernsehen in 9 Bildern. Buch und Regie: Stella Musulin [typescript, with handwritten annotations]. Vorlass / Collection Helga Köcher, Landessammlungen Niederösterreich. 
 
@@ -125,7 +135,11 @@ Musulin, Stella. n. y. Letter to Helga Köcher, 21 November ?, Fridau. TS, 1 she
 
 Musulin, Stella. n. y. Note to Helga Köcher, 23 ?. MS, 1 sheet. Vorlass / Collection Helga Köcher, Landessammlungen Niederösterreich.
 
-Musulin, STella. n. d. Note to Helga Köcher. MS, 1 sheet. Vorlass / Collection Helga Köcher, Landessammlungen Niederösterreich.
+Musulin, Stella. n. d. Note to Helga Köcher. MS, 1 sheet. Vorlass / Collection Helga Köcher, Landessammlungen Niederösterreich.
+
+Musulin, Stella. 1994. Postcard to Helga Köcher, 29 July 1994 [postmark], Zell am See. Vorlass / Collection Helga Köcher, Landessammlungen Niederösterreich.
+
+Musulin, Stella. [year illegible]. Postcard to Helga Köcher, 9 August ?, Zell am See. Vorlass / Collection Helga Köcher, Landessammlungen Niederösterreich.
 
 
 ## Literature about Musulin
