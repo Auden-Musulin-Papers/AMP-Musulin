@@ -52,3 +52,27 @@ SM at that point looking after the house in ZaS, writing on the topic of "Fremde
  - Viennese acquaintances, she recalls, knew about the soaring suicide rates, about concentration camps like Buchenwald, the empty 2nd district
  - recalls small act of resistance, flying the Union Jack to mark King Goerge VI's birthday, even though the police ordered it to be taken down quickly: "Uns war es egal, wir hatten "denen" eine lange Nase gemacht, und das war uns viel wert." (21)
  - By the late summer, the British officials were sitting on packed bags, waiting for orders from London, SM forced to say her goodbyes to her future husband
+
+ ## Musulin - Köcher Correspondence
+ ### typescript letter Musulin to Köcher, 24 October 1973
+ - first recorded letter by Musulin to Köcher
+ - Musulin refers to a feuilleton piece by her in *Die Presse*, apparently dated 20 October 1973, on the issue of migrant workers
+ - informs Köcher of the name and address of the "Anführer der Aktion Wachau", Dr. Kurt Skalnik, former editor-in-chief of *Die Furche* and chief press officer of the federal president - "eine prominente Figur im katholischen geistigen Wien"
+
+ ### typescript and autograph letter signed Musulin to Köcher, 7 December 1973
+ - SM reports on a meeting on the same day, with Professor Dr. Gertraud Repp, Gertrude Weichinger (a secondary school teacher), Dr. Mechtler, Irmgard Cerny and SM in attendance
+ - Topics of discussion included: "Umweltschutz" (petrol lead content; destruction of the Seewinkel; power stations; etc.); "Beeinflußung der Politiker"; "Mut zur Demokratie", the movement founded by Köcher -> "Wir glauben, daß die Bewegung, die Sie gegründet haben, langsam helfen kann, die schweigende Mehrheit mündig zu machen. Wir wollen die Politiker zwingen, endlich SACHLICH zu denken und zu handeln."
+
+ ### TLS Musulin to Köcher, 16 May 1974
+ - makes reference to a TV appearance in "Welt des Buches": "In der Welt des buches war ich ziemlich arg und schrecklich gehemmt - hatte keine Ahnung, daß ich frei sprechen muß, ohne Teleprompter usw!  Aber man konnte wenigstens sehen, daß das der Fall war."
+
+ ### TLS Musulin to Köcher, 27 July 1974 [?] (Stolberggasse 21/12, V)
+ - self-characterisation: "Du glaubst, ich bin stark? Ha ha! Ich bin eine ganz brauchbare Klagemauer, aber eine, die, dauert das Klagen allzulang, schließlich in eine Art von seelischem Daumenlutschen verfällt. eine Daumen lutschende Klagemauer ist ein ganz netes Bild, findst nicht?"
+
+ ### TLS Musulin to Köcher, Fridau, 2 October 1974 [?]
+ - Notes on her attendance of the "politische Matinee" at the Europahaus, summarising the contributions by Prof. Acham, prof. Burghardt, prof. Nowotny
+ - handwritten note: "Du hast nicht meine Sendung über Auden gehört womit man das britische Wochenende abgeschlossen hat?"
+
+ ### ALS, Musulin to Köcher, Neulinggase, undated [April/May 1977], 4 sheets
+ - reference to her anecdotal account of her native village, Dale: "Den literarischen Kampf mit meinem Heimatdorf und den Bewohnern habe ich, glaube ich, wenigstens vorläufig beendet; es sind nur ca 65 Seiten - keine Ahnung, ob ein Verleger sich interssieren würde oder nicht. Das Unerklärliche, daß ich gerade dies überhaupt Deutsch schrieb ist ein Wagnis. Wenn ungedruckt, macht nichts. Gestern um die Zeit, gegen 19h, fühlte ich das, was ich geschildert habe, so stark, daß ich xxx und sagte mir - "Das ist das Ende." Man könnte nämlich, wenn man wollte, beliebtig viele Episoden xxx hineinsch..., denn die Sache hat keine Form, höchstens wächst die Vertrautheit des Lesers mit der Umgebung. Kein Titel. Arbeitstitel: "Letzten Endes Das bedeutet nicht ein Rückblick. Sondern die Tatsache, daß die Gemeinde Dale eine Halbinsel ist."
+ - reference to her ÖGFL reading at the Palais Palffy on 5 May: "Am 5. Mai lese ich im Palais Palffy, es ist derselbe Text der im Rundfunk gesendet wurde; angeblich macht das nichts! (die Auden-Hörfolge.)"
