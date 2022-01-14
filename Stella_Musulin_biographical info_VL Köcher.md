@@ -77,7 +77,7 @@ SM at that point looking after the house in ZaS, writing on the topic of "Fremde
  - reference to her anecdotal account of her native village, Dale: "Den literarischen Kampf mit meinem Heimatdorf und den Bewohnern habe ich, glaube ich, wenigstens vorläufig beendet; es sind nur ca 65 Seiten - keine Ahnung, ob ein Verleger sich interssieren würde oder nicht. Das Unerklärliche, daß ich gerade dies überhaupt Deutsch schrieb ist ein Wagnis. Wenn ungedruckt, macht nichts. Gestern um die Zeit, gegen 19h, fühlte ich das, was ich geschildert habe, so stark, daß ich xxx und sagte mir - "Das ist das Ende." Man könnte nämlich, wenn man wollte, beliebtig viele Episoden xxx hineinsch..., denn die Sache hat keine Form, höchstens wächst die Vertrautheit des Lesers mit der Umgebung. Kein Titel. Arbeitstitel: "Letzten Endes Das bedeutet nicht ein Rückblick. Sondern die Tatsache, daß die Gemeinde Dale eine Halbinsel ist."
  - reference to her ÖGFL reading at the Palais Palffy on 5 May: "Am 5. Mai lese ich im Palais Palffy, es ist derselbe Text der im Rundfunk gesendet wurde; angeblich macht das nichts! (die Auden-Hörfolge.)"
 
- ### ALS, Musulin to Köcher, Millstatt, 31 August / 2 September [?], 2 sheets
+ ### ALS, Musulin to Köcher, Millstatt, 31 August / 2 September [1974 oder 1975?], 2 sheets
  - reference to her divorce: "Am 16.9. findet "meine" Scheidung statt 8Vorladung) justament in der Mitte der Woche die ich meiner Tante widmen muß. Schwieriges Problem, muß gelöst werden." 
 
  ### ALS, Musulin to Köcher, Neulinggasse, 4 September [1976?], 1 sheet
@@ -91,6 +91,7 @@ SM at that point looking after the house in ZaS, writing on the topic of "Fremde
 
  ### ALS Musulin to Köcher, Schlößelgasse, 28 November [1977?], 2 sheets
  - advising Köcher on the break-up of her marriage, SM recalls her own marital difficulties: "Seinerzeit habe ich finanzielle Schwierigkeiten in Kauf genommen um nur für die meiste Zeit bei Marko verbringen zu können. Da ging a) mein Mann weg, b) er schickte uns weg; auf alle Fälle verlor Marko vorübergehend den geliebten Vater und konnte ihn mit seinen 10 Jahren nicht sich selbst überlassen. (Natürlich war er auch mein Rückhalt.) Mein größtes Bestreben war, so etwas wie Normalität in den Alltag einkehren zu lassen." 
+ - mentions start working on Auden manuscript
 
  ### ALS Musulin to Köcher, Fridau, 11 March 1978, 1 sheet
  - letter shortly after JM's death, with SM reporting on his last hours and his attitude towards death: "Was mich selbst betrifft, so kann ich mich über Gottes Rat nicht genug wundern: daß ich, ausgerechnet ich es war, die am letzten Abend seine Hand drückte und leise zu ihm sprach, und als er langsam und leise diese Welt verließ, war ich auch da - Marga, Eva Windischgraetz (Cousine) und ich. [...] Es ist für mich nie möglich, die Dinge nicht an mich heranzulassen - bzw. hinein. Ich reagiere heftig, geistig, seelisch und leider auch körperlich. Die Menschwerdung ist eine lebenslange Prozedur, die natürlich sehr verschieden vor sich geht. Ergreifend, übrigens, wie Janko unbewußt auf den Tod zusteuerte - mit einer erstmaligen Beschäftigugn mit religiösen Dingen, dann mit dem Tod (der ihn aber schon immer hingezogen hat, das wußte überhaupt nur ich) aber halt mehr und konsequenter." 
