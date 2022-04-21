@@ -95,3 +95,53 @@ SM at that point looking after the house in ZaS, writing on the topic of "Fremde
 
  ### ALS Musulin to Köcher, Fridau, 11 March 1978, 1 sheet
  - letter shortly after JM's death, with SM reporting on his last hours and his attitude towards death: "Was mich selbst betrifft, so kann ich mich über Gottes Rat nicht genug wundern: daß ich, ausgerechnet ich es war, die am letzten Abend seine Hand drückte und leise zu ihm sprach, und als er langsam und leise diese Welt verließ, war ich auch da - Marga, Eva Windischgraetz (Cousine) und ich. [...] Es ist für mich nie möglich, die Dinge nicht an mich heranzulassen - bzw. hinein. Ich reagiere heftig, geistig, seelisch und leider auch körperlich. Die Menschwerdung ist eine lebenslange Prozedur, die natürlich sehr verschieden vor sich geht. Ergreifend, übrigens, wie Janko unbewußt auf den Tod zusteuerte - mit einer erstmaligen Beschäftigugn mit religiösen Dingen, dann mit dem Tod (der ihn aber schon immer hingezogen hat, das wußte überhaupt nur ich) aber halt mehr und konsequenter." 
+
+ ## Email Helga Köcher to Sandra Mayer and Timo Frühwirth, 8 April 2022
+ 
+ Liebe Sandra Mayer, lieber Timo Frühwirth,
+ 
+jetzt hab ich unter diesem Link den Konnex gefunden, wie Edith Silbermann und die Familie Musulin zusammenkamen:
+Im Klappentext zu dieser Publikation werden die vice-versa Hilfe- und Rettungsaktionen beschrieben, die für die mitteleuropäische Geschichte des 20. Jhdts. exemplarisch waren.
+Zunächst erschien die Publikation unter Ediths Namen https://shop.falter.at/detail/9783770548422/paul-celan-edith-silbermann .
+Ihre Nichte Amy Colin hat diese Publikation dann offenbar ergänzt und erscheint hier als Herausgeberin.  https://www.fink.de/view/title/40071 .
+ 
+Edith hat Zu Rose Ausländer publiziert  https://www.zvab.com/buch-suchen/autor/edith-silbermann/
+Hat Mircea Eliade übersetzt https://www.booklooker.de/B%C3%BCcher/Mircea-Coppola-Eliade+Jugend-ohne-Jugend-Roman-suhrkamp-taschenbuch/id/A02x9HwP01ZZp
+https://www.booklooker.de/B%C3%BCcher/Mircea-und-Edith-Silbermann-Eliade+Das-M%C3%A4dchen-Maitreyi-Bibliothek-Suhrkamp-Band-429/id/A02zgTUq01ZZn
+https://www.booklooker.de/B%C3%BCcher/Mircea-und-Edith-Silbermann-Eliade+Die-drei-Grazien-Erz%C3%A4hlung/id/A02rYEjz01ZZO
+ 
+Und das ist der Kontakt zu Edith’s Nichte Amy Colin http://www.german.pitt.edu/people/amy-colin
+ 
+Eine ebenfalls enge Freundin von Stella war Christine von Kohl. https://de.wikipedia.org/wiki/Christine_von_Kohl und http://biografia.sabiado.at/kohl-christine-von/
+Bei ihr und ihrem Mann Wolfgang Libal wohnte Stella einige Zeit  rund um 1977.
+Hier in dieser Schilderung wird auch diese Zeit gut lebendig – mit einem Foto der beiden im  hohen Alter. Und die beiden waren auch enge Freunde von THomas Bernhard, ist hier zu lesen.
+ 
+Zu Lore Toman ist nur diese alten Links zu finden http://biografia.sabiado.at/toman-lore/ und https://www.aeiou.at/aeiou.encyclop.t/t585201.htm .
+Und natürlich ihre Publikationen. Z.B. „Abschied vom Patriarchat“ https://www.buecher.de/shop/rechtssoziologie/abschied-vom-patriarchat/toman-lore/products_products/detail/prod_id/25968117/
+ 
+Um noch ein paar Bilder beizusteuern:
+ 
+Da ist Stella aufgewachsen: https://de.wikipedia.org/wiki/Dale_(Pembrokeshire)#/media/Datei:Dale_Castle.jpg
+ 
+http://www.castlewales.com/dale.html
+
+Lloyd Philipps war Stellas Mädchenname.
+Hier gibt es auch einen ziemlich verwirrenden Genealogie-Entwurf https://www.ancestry.com/genealogy/records/hugh-vaughan-bellairs-lloyd-philipps-24-13jqlfy . Die Namen die ich noch im Gedächtnis habe, sind diese Osra (aus meiner Erinnerung eine ungeliebte Stiefschwester von ihr) und Rhodri – wobei ich nicht mehr sicher bin, ob ihr Vater oder ihr Lieblingsbruder so geheißen hat. In dieser Auflistung, die wenn ich es recht verstehe, nach gleichaltrigen Leuten aus dem Umfeld erstellt wurde, steht er jedenfalls als Stellas Vater.  Stellas Vater war zweimal verheiratet, seine erste Frau starb, als die Kinder klein waren. Und heiratete später nochmal und hatte weitere Kinder.
+Auch hier ist dieser Rhodri nochmal https://www.geni.com/people/Rhodri-Lloyd-Philipps/6000000057430896861
+Doch, Rhodri war ihr Vater. Hier  taucht er auch auf https://www.genealogy.com/ftm/f/r/e/Alan-G-Freer/GENE5-0159.html
+ 
+Soweit also meine Ergänzungen.
+Frohe Ostern und liebe Grüße
+Helga Köcher
+ 
+Helga Köcher
+Operngasse 20A/7
+1040 Wien
+Tel. (01) 586 23 45
+Helga.koecher@chello.at
+www.viennAvant.at
+
+
+## Email Helga Köcher to Sandra Mayer, 11 April 2022
+Ich hab dann das kleine Recherchenergebnis zu Stellas Frauennetzwerk auch Helmut geschickt und bin dabei draufgekommen, dass ich einen Link vergessen hab anzufügen.
+Und zwar den beim Passus zu Christine von Kohl, den ich beschrieben hab („Hier in dieser Schilderung…..“): da ist nun auch dieser Link – samt der Thomas Bernhard-Anekdote https://seemo.org/ressources/christine-von-kohl-1923-2009/
